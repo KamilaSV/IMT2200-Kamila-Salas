@@ -1,1 +1,1 @@
-# IMT2200-Kamila-Salas
+Kamila Ignacia Salas Vargas
